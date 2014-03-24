@@ -1,1 +1,1 @@
-public void borring
+jeg har det sjovt
